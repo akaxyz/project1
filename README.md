@@ -1,2 +1,2 @@
-# project1
-my first project
+# aka
+lmgao idk wtf github is though 💀
